@@ -12,7 +12,7 @@
 - 👯 I’m looking to collaborate on **Web Apps(Frontend)**
 
 
-- 📫 How to reach me **@ObedQ**
+- 📫 How to reach me ****obedotu51@gmail.com
 
 <!-- ### Blogs posts -->
 <!-- BLOG-POST-LIST:START -->
